@@ -43,6 +43,8 @@ Resolución de ejercicios
 
 # Video
 
+https://drive.google.com/file/d/1C8MttLjg-ajf1AR0ixbInIh4ZHlPQNOT/view?usp=sharing
+
 # Conclusiones
 
 * En conclución se consiguió realizar un buen estudio de los temas que estan en el capítulo 7 y 8 mediante los mapas conceptuales realizados que abarcan la teoría en forma resumida
